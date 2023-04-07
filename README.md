@@ -1,1 +1,1 @@
-# one-piece2.github.io
+# magazine2.github.io
